@@ -3,4 +3,4 @@
 
 - Muito obrigado pela atenção 
 - instagram: _zerbietii
-- LinkedIn: linkedin.com/in/moyses-zerbieti
+- LinkedIn: https://www.linkedin.com/in/moyses-zerbieti/
