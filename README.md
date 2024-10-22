@@ -2,5 +2,4 @@
 - Caso tenha alguma sujestão para melhoria ou estudo vou deixar meu contato abaixo 
 
 - Muito obrigado pela atenção 
-- instagram: _zerbietii
 - LinkedIn: https://www.linkedin.com/in/moyses-zerbieti/
